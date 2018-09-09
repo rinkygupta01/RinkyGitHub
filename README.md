@@ -1,3 +1,0 @@
-# RinkyGitHub
-Added by Tom
-
